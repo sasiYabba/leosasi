@@ -14,3 +14,9 @@ python2 sasi.py
 
 #Balck hackr Sasiya
 @sasindu sadrvan
+😈
+The black hackr
+Tech 💜️
+
+My whatsapp no:👇
++94725269631
